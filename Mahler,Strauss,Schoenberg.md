@@ -40,6 +40,7 @@
     + Artificiality & Affectation（做作）
   + 以很快的速度吸收很大量的浓度（钢琴小品）
 + Perverse Sex（变态的情欲）：Salome和Elektra向此靠近
+  + Salome：Harmonically complex，不协和的音响；Jochanaan协和但Salome非常不协和
 ### 奥运会曲目1936柏林奥运会
 ## Anton Bruckner
 + 布鲁克纳是奥地利的小村庄的小学老师，并已经过世所以纳粹非常喜欢布鲁克纳
