@@ -34,6 +34,10 @@
 + Dedication
 ### 歌剧(Maximalizing Opera)
 + Decadence（颓废（唯美）主义）
+  + 末世情怀
+  + 以“势利眼”的态度来歧视品味："Brahmin"人工制造的感觉与印度社会种姓制度的森严性
+    + 于斯曼《反自然》的起源：让·德赛森特
+    + Artificiality & Affectation（做作）
 ### 奥运会曲目1936柏林奥运会
 ## Anton Bruckner
 + 布鲁克纳是奥地利的小村庄的小学老师，并已经过世所以纳粹非常喜欢布鲁克纳
