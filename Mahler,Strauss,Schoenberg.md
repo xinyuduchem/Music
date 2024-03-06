@@ -41,6 +41,8 @@
   + 以很快的速度吸收很大量的浓度（钢琴小品）
 + Perverse Sex（变态的情欲）：Salome和Elektra向此靠近
   + Salome：Harmonically complex，不协和的音响；Jochanaan协和但Salome非常不协和
+  + Elektra：
++ 裤装角色：女中音演“小男孩”的角色 Rosenkavalier（玫瑰骑士）
 ### 奥运会曲目1936柏林奥运会
 ## Anton Bruckner
 + 布鲁克纳是奥地利的小村庄的小学老师，并已经过世所以纳粹非常喜欢布鲁克纳
@@ -50,4 +52,11 @@
   + Monumentality, Quasi-sacred polyphony（可以听得到细节）, Organ-like Instrumentation（声音效果十分像管风琴）
     + 被称为Mass-Symphony弥撒交响乐
     + 使用了瓦格纳大号
+## Gustav Mahler（犹太人）
++ 极繁主义达到了高峰
++ 专门指挥歌剧，但是不写歌剧
++ 9个交响乐曲，5个orchestral song（第八号：千人交响曲）
+  + 从表面上来看会有神经质
++ Portents Threats Contradictions Consolation Dream-like_Escape Alienation（异化）
+
 
