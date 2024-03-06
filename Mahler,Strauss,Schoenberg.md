@@ -19,10 +19,12 @@
 + Strauss希望回到19世纪德国音乐的极盛时期
   + 什么是好的德国音乐？从巴赫到布鲁克纳
 #### 音诗/交响诗 Maiximalizing Tone Poem
++ 以交响乐的形式为主，但是有标题，只有单乐章
 + Zarathustra查拉图斯特拉
   + 瑰丽的管弦乐色彩（高贵的气质）
 + Don Quixote堂吉柯德：幻想变奏
-  + 3个主题10个变奏
+  + 主题与变奏，有许多细节
+  + 3个主题10个变奏（极繁化）
   + 用音乐精准描绘主人公面对各种事物的状况和心理反应
 ### 艺术歌曲（Orchestral Songs）
 + Dedication
@@ -35,3 +37,4 @@
   + Monumentality, Quasi-sacred polyphony（可以听得到细节）, Organ-like Instrumentation（声音效果十分像管风琴）
     + 被称为Mass-Symphony弥撒交响乐
     + 使用了瓦格纳大号
+
