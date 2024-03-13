@@ -58,5 +58,8 @@
 + 9个交响乐曲，5个orchestral song（第八号：千人交响曲）
   + 从表面上来看会有神经质
 + Portents Threats Contradictions Consolation Dream-like_Escape Alienation（异化）
++ 第一交响曲：第一乐章田园风光（前调管乐器的使用，尤其是圆号）
+  第三乐章：葬礼音乐，含有土耳其的风格；悲喜之间没有转折
+  
 
 
