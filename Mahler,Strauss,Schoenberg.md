@@ -87,3 +87,12 @@
   + 极繁主义的表现问题，要复活一定要先“死”
   + 第三第四乐章来自于少年魔号
   + 有舞台上下的互动，也用到了管风琴和声乐
+  + Adorno：Downward Curve Intesity
+  + 第一乐章当英雄倒了以后休息五分钟
+    + 仪式感拉到最强，将仪式感极繁化
++ Social potiical：
+  + Ecstasy of the Promise of Eternal Life 永生承诺的狂喜
+  + 要花很大的力气去扔掉自己的怀疑
++ Intertextual影射：影射的东西太多了
+  + 第二交响曲第一乐章影射贝多芬第九交响曲第一乐章、第二乐章；第五交响曲（暂停）
+  + Tremolo Unison on the Low Strings Fermata
