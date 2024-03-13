@@ -59,7 +59,21 @@
   + 从表面上来看会有神经质
 + Portents Threats Contradictions Consolation Dream-like_Escape Alienation（异化）
 + 第一交响曲：第一乐章田园风光（前调管乐器的使用，尤其是圆号）
-  第三乐章：葬礼音乐，含有土耳其的风格；悲喜之间没有转折
-  
+  第三乐章：葬礼音乐，含有土耳其的风格；悲喜之间没有转折（小调两只老虎，卡农手法（不同的声部，不同的小节上进入））
+    婚礼和葬礼同时进行（两个对比反差的旋律同时进行）
+  第四乐章；英雄气概
+  每个作品包罗万象
++ Maximalizing the (Philosophical) Symphony：将交响乐极繁化
+  + 交响乐具有很多的哲学内涵
+  + music exprssive of a world outlook: Weltanschauungsmusik 音乐要表达一个世界（世界观意象）
+    + 表达多变、数量上很多
+  + Composer as Thinker：Nature, Art, Human Condition
+  + 马勒喜欢思考人的生命和存在主义
+    之后交响乐移到了北欧、俄国和美国
++ 第八交响乐：千人交响乐（通过极繁化来表现时间观意象）
+  + 没有乐章的概念：“两部分”：第一部分是拉丁文，第二部分是德文
+      Part I：造物主的圣灵 Part II: 《浮士德》
+    用到了管风琴，儿童合唱团
+  + 写得速度非常快
 
 
